@@ -7,3 +7,5 @@ https://economictimes.indiatimes.com/news/international/global-trends/eric-schmi
 i dont want to get involved with eric schmidt, he's just a talking head talking about AI, i dont like that, im a serious person, i dont have time for this shit
 
 lemme take care of this after my app is done before thanksgiving, i cant wrap my mind around it right now. absolute nuisance ... ill make u laugh tho 😂 but im busy now BC IM READING UR PAPERS thats why im busy
+
+joels from oklahoma or something like that, like gtfo, i DO NOT care about this person AT ALL.
