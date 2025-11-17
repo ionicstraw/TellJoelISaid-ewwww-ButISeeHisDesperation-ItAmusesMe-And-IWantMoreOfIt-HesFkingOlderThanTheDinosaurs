@@ -9,3 +9,5 @@ i dont want to get involved with eric schmidt, he's just a talking head talking 
 lemme take care of this after my app is done before thanksgiving, i cant wrap my mind around it right now. absolute nuisance ... ill make u laugh tho 😂 but im busy now BC IM READING UR PAPERS thats why im busy
 
 joels from oklahoma or something like that, like gtfo, i DO NOT care about this person AT ALL.
+
+https://www.billiontoone.com/about/leadership-board there are all kinds of investors out there, we're not desperate to work with joel and absolutely im not, yeah the lights are on but no one's home, i dont want to deal with fking bullshit for years
