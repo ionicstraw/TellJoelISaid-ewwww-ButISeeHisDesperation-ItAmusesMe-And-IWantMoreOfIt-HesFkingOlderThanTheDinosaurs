@@ -11,3 +11,5 @@ lemme take care of this after my app is done before thanksgiving, i cant wrap my
 joels from oklahoma or something like that, like gtfo, i DO NOT care about this person AT ALL.
 
 https://www.billiontoone.com/about/leadership-board there are all kinds of investors out there, we're not desperate to work with joel and absolutely im not, yeah the lights are on but no one's home, i dont want to deal with fking bullshit for years
+
+im not signing any contact with this person, he seems very off, weird and unimpressive. there's a lot of great stuff out there, im not putting myself in any box. i have great ideas, ive worked hard in my life to be around great ppl. i dont want to be around someone who i think, goes on ebay to look for womens used underwear to sniff.
